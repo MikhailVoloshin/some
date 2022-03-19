@@ -1,3 +1,3 @@
 # some
-You realy need some explaining , you know all this shit
+You really need some explaining , you know all this shit
 ❤️😍💕😘
